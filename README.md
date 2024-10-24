@@ -1,0 +1,1 @@
+# NE NERDE YENİR
